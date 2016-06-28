@@ -8,3 +8,6 @@ VERY GOODS
 HELLO WORDS 
 I THINK the best ways 
 ok 
+ hello people 
+ thinks avanced
+ 
